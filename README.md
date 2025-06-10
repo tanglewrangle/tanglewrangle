@@ -15,5 +15,7 @@ heres another photo
 ok that one wasn't a windows 7 sample photo but yeah i play ponytown and stuff
 i really don't know what i'm doing here but someone blue told me to make this	yes
 how do i switch lines and like photo positioning im lost rn
+ok that fixed
+thx @devimccallion for the fortuitous help and assistance.
 
 </div>
